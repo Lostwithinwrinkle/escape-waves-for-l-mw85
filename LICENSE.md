@@ -1,4 +1,4 @@
-
+escape waves for lucky blocks elite Script is the best escape waves for lucky blocks Script, featuring custom skins and auto-sell. Safe and powerful
 
 
 
